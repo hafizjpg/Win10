@@ -1,1 +1,1 @@
-my win10 rice
+ytta aja cuy
